@@ -19,8 +19,6 @@ MY PLAYGROUNDS
 
 
 
-✉️ sleetdesign.nft@ud.me
-<br/>
-✉️ nathanrenfroe.x@ud.me
+✉️ thesunshiningmin@gmail.com
 <br/>
 copyright 2025 by Nathan Renfroe with The SunShining
